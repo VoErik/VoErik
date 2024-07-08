@@ -1,4 +1,4 @@
-### Lets talk about AI and education! 👨‍💻
+### NLP and xAI 👨‍💻
 
 
 
